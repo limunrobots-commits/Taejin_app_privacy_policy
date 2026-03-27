@@ -1,0 +1,1 @@
+# Taejin_app_privacy_policy
